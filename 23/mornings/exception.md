@@ -1,6 +1,6 @@
 Morning: Aberration. Edge case. Exception.
-Most animals know no morning,
-roaming same-temp depths, indifferent.
-Morningless most universe:
-off-world, stars stare unblinking.
-Only here, only this, our surface-dweller secret.
+In the sunless sea depths, where most creatures live,
+no one's heard of it. They don't care.
+Most of this universe knows no morning!
+Empty stretching black, distant stars unblinking.
+It's only here, in this fragile in-between: our surface-dweller secret.
