@@ -1,12 +1,15 @@
 The Swamp Kingdom of the Mucosa
 ===============================
 
-is where I live.  
+is where I
+
+LIVE.
 
 Porous boundary where  
 inner meets outer  
 self meets other  
-where I taste  
+where  
+I taste  
 smell  
 receive  
 excrete  
@@ -26,9 +29,9 @@ leave behind the world of slime
 live a life of only mind  
 
 But my membranes assure me  
-with every taste  
-every inhale  
-every ejaculation  
+with every gasp  
+every swallow  
+every orgasm  
 that the body is transcendent.  
 
 To live is mucous.  
