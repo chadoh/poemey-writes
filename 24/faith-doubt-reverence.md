@@ -18,67 +18,51 @@ I believed it.
 
 Heaven? Check.
 Hell? Check.
-Rapture? Armageddon? 1000-year reign of Christ? Check check check.
-(Hell and end-times stuff made my brother sad, because he didn't want his friends tortured, but for some reason that never crossed my mind.)
-
+Rapture & Armageddon? Check.
 Six-day creation? A 6000-year-old Earth? Check and mate.
 
 That's how I was gonna convince them, I was taught.
-Creation, the foundation of my Christian worldview.
+Creation, the foundation of my worldview.
 Evolution, the foundation of my culture's.
 Aim for the foundation.
 Shake people's belief in their descent from apes,
 the rest of the Christian worldview follows neatly.
-If Creation and the flood, as outlined in Genesis,
+If Genesis; if Creation and the flood,
     then the prophets.
     If the prophets,
         then Jesus.
 
-        All of it.
-        My whole faith.
-
 This was the play.
 I was taught it explicitly,
-in videos that made it seem
-obvious,
-fun,
-bratty.
-And I tried it,
+and I tried it,
 and made a fool of myself,
 and made friends feel attacked.
 
 It's not surprising to you,
-dear reader,
-at least,
-I'd imagine,
-it's not surprising to you:
+dear reader:
 
 this was a brittle worldview.
 
 I spent years missing it.
 Trying to get it back.
-That confidence.
+That certainty.
 That blessed assurance.
 
 You don't understand.
 Every star in the sky!
-Every constellation.
-Every life form.
-Every planet.
-Placed there,
-    explicitly,
-hand-picked
-    by the Creator,
+Every world event.
+All under control.
+All predicted; foretold;
+hand-picked by the Creator
 for my specific
     and our collective
-enjoyment.
-Our edification.
+edification.
 To draw our eyes upward.
 To focus us on Himself.
 
-And yes, I'm laughin'.
-That doesn't sound desirable to me anymore, either.
-I don't miss it anymore.
+And no,
+that doesn't sound desirable anymore.
+I don't miss it now.
 But I spent the first...
 three? five? of those ten years,
 trying to re-achieve 
@@ -91,28 +75,23 @@ And God receded.
 
 God receded.
 
-God shrank.
-
 "God becomes, and God unbecomes," said Eckhart, by way of On Being [I wish I could find the episode for you].
 
 "God is that which cannot be known, God can only be loved," said Richard Rohr, by way of The Liturgists.
 
 But I found all this
-    shrinking and
-        receding and
-            unbecoming and
-                unknowability a bit,
+    receding and
+        unbecoming and
+            unknowability a bit,
 you know.
 Unbecoming.
 Unsatisfying.
 
-A friend,
-a spiritual counselor,
-printed a chapter of a book for me:
-an Eco-Theist conception of God.
-God as Vivifier.
+A spiritual counselor
+gave me a chapter of a book:
+Eco-Theism.
+God as Vivifier; Animator;
 Enlivener of all things.
-God as life force.
 
 And that's fine!
 Poetic. A nice metaphor,
@@ -125,17 +104,16 @@ just out of sight,
 right on the other side
 of Occam's Razor.
 
-You don't need God,
-in these explanations of reality.
+You don't need God.
 God's just a nice-to-have.
-Not something to lean on with all my intellectual weight.
+Not something to lean on
+with all my intellectual weight.
 
-I know someone who is still on this quest,
+I know someone still on this quest,
 still reasoning toward a necessary god.
-Where does he lean his intellectual weight?
 He places God in the gaps
-between what science has already explained
-and what it hasn't yet determined.
+in scientific understanding;
+what we've yet to explain.
     The origin of life.
     The fine-tuning of fundamental constants.
 He knows this is called a fallacy;
@@ -144,8 +122,7 @@ he does it anyway.
 I have many problems with this.
 
 Why one God?
-Why not a pantheon?
-A god for every gap?
+Why not a god for every gap?
     The Origin of Life god.
     The Fine-Tuning god.
 Or heck, a god for every finely-tuned constant!
@@ -170,12 +147,8 @@ On the merits of reason alone,
 how you gonna get from
 "some anthropomorphic Agent, idk?"
 to Heaven,
-    angels,
-    demons,
-    prophets,
-    prayer,
-    saved by grace,
     a personal God,
+    saved by grace,
     the Trinity,
     Jesus?
 
